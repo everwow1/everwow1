@@ -1,16 +1,16 @@
-## Hi there 👋
+Hi I am everwow 
 
-<!--
-**everwow1/everwow1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i am a 15 year old Coder 
+------------------------
+About Me
+------------------------
+I like to listen to music 
+I like anime
+I like to code in my free time
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+Want to send me a message
+Email-everrwoww1@gmail.com
+Discord-everrwow1
